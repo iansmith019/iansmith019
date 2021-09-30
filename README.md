@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ian samski smith
+- 👋 Hi, I’m @ian-samski-smith
 - 👀 I’m interested in long walks on the beach, dancing, bird watching, singing to my cats, crying into my pillow when i dont win at league
 - 🌱 I’m currently learning karate, jit kun doh, pokemon catching, bow staff, gardening
 - 💞️ I’m looking to collaborate on garadge karate with future best friend
